@@ -1,0 +1,5 @@
+- 👋 Olá eu sou o @eliandrosergio
+- 👀 Estou interessado em Desenvolvimento de Software
+- 🌱 Eu gosto de apreender tudo o que envolve Tecnologia
+- 💞️ Gosto de trabalho em Equipa e de dar suporte, bem como de fazer novas amizades
+- 📫 Sou de Angola, da cidade de Luanda, nasci em 03 de Outubro de 2004. Prazer! 💞️✨ 
