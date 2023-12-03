@@ -1,4 +1,4 @@
-- 👋 Olá eu sou o @eliandrosergio
+- 👋 Olá eu sou o @orixaolokun
 - 👀 Estou interessado em Desenvolvimento de Software
 - 🌱 Eu gosto de apreender tudo o que envolve Tecnologia
 - 💞️ Gosto de trabalho em Equipa e de dar suporte, bem como de fazer novas amizades
